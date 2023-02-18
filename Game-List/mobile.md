@@ -1,42 +1,74 @@
+- 20 minutes till down
+- 99 bricks
 - A Dance of Fire and Ice
+- A Vida é um Jogo
 - Apple Knight
+- Baba is you
+- Biphase
 - Blue/Yellow/Pink/Red/Green/Black (Bart Bonte)
+- Brothers: a Tale of two Sons
 - Candies 'n Curses
 - Cat Bird
 - Colorblind
+- Crypt of the NecroDancer
 - Cube Space Collection
 - Dadish 1, 2, and 3
 - Dandara
 - Dark Echo
 - Dead Cells
+- Dome keeper
+- Donut country
+- Doodle Champion Island Games
 - Duet
+- Dungeons of Dreadrock
 - Evoland 1 and 2
 - Forgotton Anne
 - Freeze 1 and 2
 - Geometry Dash World
 - Goragoa
 - Gris
+- GTA 3
+- GTA chinatown wars
+- GTA San Andreas
+- GTA vice City
 - Heart Star
 - Hidden Folks
+- Journey (IOS)
+- Kingdom Rush Frontiers
+- Kingdom Rush Origins
+- Kingdom Rush Vengeance
+- Kingdom Rush- Tower Defense
+- Life is strange
+- Linelight
 - Magic Toutch
-- Mini Golf, Nano Golf, and Nano Golf: Hole in One (Nitrome Company)
+- Mini Golf,
+- Nano Golf, 
+- Nano Golf: Hole in One 
 - Monument Valley and Monument Valley 2
 - My Firend Pedro
 - Odmmar
 - Otherworlds Legends
 - Paper Please
+- Poly Bridge
+- Pudding Monsters
+- Quadline
 - Rayman Fiesta Run
+- Scourgebringer
 - Shovel Knight
+- Simulacra
 - Sonic 1 and 2
 - Soul Knight
+- Space Expedition
 - Sword of Xolan
+- The entire Room series
 - The Looper
 - There Is No Game
 - Titan Souls
-- The entire Room series
 - Tomb of the Mask
 - Total Party Kill
+- Turnip Boy Commits Tax Evasion
 - Undertale
 - Vampire Survival
 - Very Little Nightmares
+- What the golf ? (IOS)
 - What's Inside the Box?
